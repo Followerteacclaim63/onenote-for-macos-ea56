@@ -1,4 +1,4 @@
-#  
+#  Enhance OneNote for macOS with OneNote for macOS elite Tool - OCR scanning and AI assistant, the #1 tool. Includes OCR scanning and AI assistant for a smoother experience.
 
 
 
